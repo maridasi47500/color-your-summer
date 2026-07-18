@@ -9,5 +9,5 @@ comme si tu tires une fleche avec un arc a gauche, en meme temps fais un pas en 
 - sort la poitrine rentre la poitrine, remet ta poitrine droite (entre les deux) decale la poitrine a droite (ne monte pas les epaules, cest jn mouvzment sur le cote) decale ta poitrine a droite .
 - decale ta poitrine a droite et decale le poids sur la jambe de droite, plie un peu la jambe, alterne
 - tends les deux jambes, legerement plie une jambe apres lautre comme pour les degourdir
-- faire commesi tu tire une corde a ta jambe gauche et appuie toi dessus le pied un peu en avant et plie lautre jambe, alterne
+- faire commesi tu tire une corde a ta jambe gauche et appuie toi dessus le pied et genou un peu en avant et plie lautre jambe, alterne
 -  
