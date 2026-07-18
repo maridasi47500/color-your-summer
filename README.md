@@ -16,3 +16,8 @@ Your GitHub repository bursts with creativity and summertime fun! Here's a fresh
     🏖️ Theme Focus: With “A Summer to Play” as the guiding vibe, the repo encourages artistic expression and social connection through visual storytelling.
 
 It’s part gallery, part design studio, and now—with Rails-powered communication—part summer mail party! 🎊
+
+:dancers: learnhow to dance
+:athletic_shoe: go to the gym
+:badminton: play ball games
+
