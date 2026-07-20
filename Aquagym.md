@@ -1,0 +1,13 @@
+- limportant est davoir de leau au moins jusqua au dessus de la poitrine
+- tu donnes deux coups de poing ou main ouverte devant en haut sur lez cotes vers le bas.
+- tend tes bras sur les cotes ramene tes bras au centre avec tes bras tendus 10 fois
+- tend tes bras et balance au dessus de ta tete
+- tu ouvre tes mains et remonte tes deuw genous pour faire un salto
+- tu montes tes genous lun apres lautre
+- dans leau tu fais un moulin avec tes mains devant toi , un moulin avec chaque mains sur les cotes
+- ecarte tes pied , ferme (rapproche tes pieds) recommence
+- tu tends tes bras de chaque cote cest une jambe dun cote qui se leve sur un coté , tendue, tu fermes tes bras et la jalbe revient a terre, (tu ferme tes brras  un avant brat bras sur lautre) tu reouvres tes bras en les tendant horizontal sur les cotes, cest le tour de lautre jambe et ai si de suitte
+- tu mets tes deux bras devant, la jambe que tu choisis arriere se plie comme un talon fesse , tu amenes tes bras derriere, la jambe qui etait pliee revient a terre et lautre donne un coup de pued (football) devant, tu gardes les meme pied devant et derriere 10 fois puis tu echanges les pieds
+- tu amene tes ghenous plies vers ton buste , les pieds au niveau des mains lzs doigts ecartes pour faire un salto, tu donne un double coup de pied avec deux pied en avant, puis tes jambes redesccendent( tu donnes un coup de pied ou un double coup de pied vers lavant 2fois)
+- lhydro massage est quand tu fais un moulin dans leau derriere le dos de quelquun
+- 
