@@ -1,0 +1,12 @@
+- jambes dans leau tu fais un pied apres lautre tu cours sur place
+- vers la fin avec une personne qui te tient tes bras ecarte avecc ses bras les epaule et larriere de la tete contre son ventre, tu fais le battement de jambes, le velo avec les jambes(pedalo) et pousser le leau en oliabt/tendant les jambes
+- tu sautes dans leau
+- bras tu donnes coups de poing en avant, vers le bas vers le haut(bras alterne)
+- tu fais des petit moulins avec tes bras dans leau hors de leau
+- tu tends tes bras devant mais vers le sol tu plies tes xoudes vers le haut
+- tendre tes bras sur les cotes ramener les bras hors de leau
+- coups de poings ou pousser leau alternant les deux cotes sur les cotes
+- tend tes bras sur les cotes, joins les en lair sur le rythme de la musique
+- tendtes bras sur les cotes joins les devant
+- a deux personnes : paume contre paume , pousse la paume droite quand lautre pousse sa paume gauche, puisse pousse de lautre main et laisse lautre pousser lautre main
+- paume contre paume : tend tes mains et fais des arcs en miroir 
