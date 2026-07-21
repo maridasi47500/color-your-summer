@@ -5,5 +5,11 @@
 - je fais un carré ou rectangle, javance dabord pied droit(ou recule pied droit, les deux recule /avance le mzme pied soit avec une pause pour chaque pied (1 et et sur les temps) -, et,(en haut a droite) 2, et,(en haut a gauche) 3, et,(en bas a gauche) 4, et.
 - soit je fais pas de pause, le "et" est en xontretemps . le pied gauchhe et deoit sont en bas a gauche le pied droit fait 1(en bas a droit) et (en haut a droite) 2(le pied gauche rejoint le pied droit, le pied gauche fait 3(en haut a gauche) et(en bas a gauche) 4(en bas a gauche le pied deoit rejoint le pied gauche
 - je fais des crochets sa veut dire je marche de gauche a droite ou droite a gauche en faisant des croisement arc les pied. ca donne (le "et"est en contre temps) 1 (pied droit en avant crochet vers la gauche) 2 le pied gauchhe revient, 3, crochet vers la gauche vers larriere avec pied droit, 4 le pied gauche revient. 5,6,7,et(le crochet en arriere/exterieur avec le pied droit est en contretemps,et le pied gauche ne bouge pas,8 le pied deoit "revient"(8comme un 1).
-- vers la droite : double crochet vers lavant 2(pied gauche ceoisement avant) 3(pied droit avance a droite )4(croisement pied gauche en avant/interieur
-- 
+- vers la droite :  crochet vers lavant 2(pied gauche ceoisement avant) 3(pied droit avance a droite )4(croisement pied gauche en arriere/exterieur
+- vers la droite : 1 pied droit a droite , 2  crochet du pied gauche en avant/interieur, 3 pied droit avant a droite 4 crochet du pied gauche a lexterieur (le pied droit ne bouge pas) , "et" le pied droit se reappuie en contretemps 
+- 1 le pied gauche fait 1
+- pas de base simple 1 ouvrir sur le temps avec un pied 2 fermer les pied sur le temps , 3 reouvrir les pied avec lautre pied par rapport ua debut , refermer les pied
+- pas de base en faisant un zig zag : 1 en diagonale en avant a droite 2 (le pied gauche se rappeoche du pied droit et sappuie "et" en contretemps le pied droit se reappuie
+- 3 4 et pour revenir a la position du depart
+  meme chose pour la diagonale en arriere a droite
+  
