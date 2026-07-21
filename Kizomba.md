@@ -1,4 +1,8 @@
 - cest un mix de tango, bal bresilien, et dautres danses
 - tu te souviens de donner un coup de hanche pour fermer ta porte dans le reggaeton , on fait travailler les hanches et ll le bassin, mais cest plus sautillé et on ne boughe pas la poitrine
 - ca se danse sur des chansons comme despacito
+- il y a le pas de base pour commencer : jouvre , 1, 2, et, (je ferme) (2et rapide)
+- je fais un carré ou rectangle, javance dabord pied droit(ou recule pied droit, les deux recule /avance le mzme pied soit avec une pause pour chaque pied (1 et et sur les temps) -, et,(en haut a droite) 2, et,(en haut a gauche) 3, et,(en bas a gauche) 4, et.
+- soit je fais pas de pause . le pied gauchhe et deoit sont en bas a gauche le pied droit fait 1(en bas a droit) et (en haut a droite) 2(le pied gauche rejoint le pied droit, le pied gauche fait 3(en haut a gauche) et(en bas a gauche) 4(en bas a gauche le pied deoit rejoint le pied gauche
+- 
 - 
