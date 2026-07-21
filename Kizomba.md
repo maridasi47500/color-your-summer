@@ -1,0 +1,4 @@
+- cest un mix de tango, bal bresilien, et dautres danses
+- tu te souviens de donner un coup de hanche pour fermer ta porte dans le reggaeton , on fait travailler les hanches et ll le bassin, mais cest plus sautillé et on ne boughe pas la poitrine
+- ca se danse sur des chansons comme despacito
+- 
