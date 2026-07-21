@@ -1,0 +1,18 @@
+- danse qui ressemble a une marche militaire cest la danse la plus facile
+- il y a beaucoup le balancement du bassin de gauchhe a droite les bras pres du ventre font commesi tu marches
+- quand tu le danses a deux, les pied quand tu fais des pas sur le cote sont en miroir, quand cest davant en arriere, si le pas du pied de lautre en miroir en en arriere etc
+- premier pas pied droite pied gauche
+- pas en appuyant chaque pied : tu ouvres le pied droit tu ouvres le pied gauche, tu fermes le pied droit tu ferme le pied gauche
+- pas en appuyabt chaque pied : tu ouvres le pied droit tu laisse le pied gauchhe ferme tu fermes le pied droit tu laisses le pied gauche ferme
+- tu fais des pas vers le droite : tu ouvres le pied droit tu laisse le pied gauche ferme tu ouvres plus loin le pied deoit tu laisse le pied gauche ferme
+- en alternant les pied avec le pas de base tu tourne sur toi
+- par rapport aux autres danses cest plus lent donc la musique est plus "veloce"
+- en commencant par le pied droit un pied apres lautre tu avances tu fais 8 pas, le dernier pas arrive au memeniveau que lautre pied, tu reparsen arriere du pied droit.
+- un autre pas fait comme ca :  ouvrikr a gauche , pied droit ferme, fermer a gauche, ouvrir a droite, pued gauche ferme, fermer a droite
+- un autre pas fait avancer le pied droit, le pied gauche reste a sa place, reculer le pied droit, le pied gauche reste a sa place, recommence, inverse les pieds
+- quznd tu le danses a deux : avance le pied droit , laisse le pied gauche remet le droit, recule le pied gauche , laisse le pied droit, remets lepied gauche
+- quand tu le danses a deux tu te donne une seule main et tu marche dans cote , puis tu changes de diirextion
+- tu as 4temps chacun(e) pour se faire tourner, quand un main setouche en lair
+- tu peux tourner en faisant le pas de base ou le pas davant en arriere
+- quand tu le fais a deux tu peux faire le pas sur le cote dans les 2 sens
+- 
