@@ -1,7 +1,8 @@
-- je tape des mai s 1,2,,1, comme 1,2,3, 47
+- je tape des mains 1,2,,1, comme 1,2,3, 47 (le clap des mains nest pas en meme temps que les pieds)
 - je compte 1,23,5,6,7 il manque suel xhiffre ? 4et 8 ce sont les temps de la pause
-- commence par pied droit 1 2 et 3 est le pizd droit a sa place, le pied droit devant le pied droit a sa place, et 5 6 7 le pied gauche a sa place derrriere a sa lpalxe
-- meme chose sur le cote
+- commence par pied droit en avant diagonale a droite 1 2 et 3 est le pizd droit a sa place, le pied droit devant le pied droit a sa place, et 5 6 7 le pied gauche a sa place derrriere a sa place
+- meme chose sur le cote, jouvre, appuie sur le pied gayche, je ferme le pied droit, jouvre pied gauche, appuie pied droit, ferme pied gauchee
+- quand jouvre le pied droit, je tends pas les jambes, les jambes sont flex, et je mets tout le poids sur la jambe, jimagine comme si je renverse une bassine deau a chaque fois que jouvre  un pied avant de le refermer
 - les mains en poing devant les deuw hanxhes, le dessus des poignet plie dans le bas du dos, les brras et kes paumes de maib ouverte, les filles peuvent ecarte les bras horintalement ezt faire des vagues avec les mai s et bras
 - jouvre un pied sur lecote en arriere jouvre mon bras, je referme le pied et mon bras me caresse ma tete sans la toucher de devant a derriere et revient
 - les bras peuvent faire des rond sur les deux cotes du ventre
