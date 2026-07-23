@@ -1,4 +1,7 @@
 - bachata est une danse de republique dominicaine
 - dans les danse caribeennes tu as les jambes flex compare a dautre danses
 - jajoute du sel et du poivre dans chaque jambe, le bassin est souple, il y a un leger mouvement de bassin, mais pour la bachata il est pas exaggere
-- 
+- on part avec la jambe droite , jouvre, je ferme, jouvre a droite , je ferme a gauche. meme chose dans lautre sens pour revenir au depart.
+- en avant on part avec le pied droot mais on ferme au meme niveau que lautre pied avec le pied gauche, et on repart avec le pied gauche pour reculer. "fermer" ca veut dire  tu appuies seulement avec la pointe du pied.
+-  pour touurner vers la droitte : pied droit, tu tournes et tu regardes derriere toi (pied gauche), tu reviens a lendroit (pied droit) , tu fermes avec pied gauche.
+-  
