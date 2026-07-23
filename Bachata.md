@@ -1,0 +1,4 @@
+- bachata est une danse de republique dominicaine
+- dans les danse caribeennes tu as les jambes flex compare a dautre danses
+- jajoute du sel et du poivre dans chaque jambe, le bassin est souple, il y a un leger mouvement de bassin, mais pour la bachata il est pas exaggere
+- 
